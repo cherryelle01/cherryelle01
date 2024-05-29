@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning HTML, CSS,JS
 - 💞️ I’m looking to collaborate on all projects
-- 📫 How to reach me rachelkonadugyamfi@gmail.com
+- 📫 How to reach me rachelkonadugyamfi7@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
